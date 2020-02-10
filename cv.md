@@ -10,7 +10,7 @@
 
 ## 3. Summary
 
-I am very motivate to employee in Epam
+I am very motivate to employee in Epam, ready for selfaducation
 
 ## 4. Skills 
 + HTML5 
